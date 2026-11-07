@@ -1,0 +1,1 @@
+This is a place where i stored all my 3 blind work and wish to add more soon as i learn new things, it is an interesting approach ive taken here since most of the resources to learn from are super boring or confusing to use so this I hope would be a helpful tool for the community, hope yall like it and lmk what changes to make and pls report bugs.
